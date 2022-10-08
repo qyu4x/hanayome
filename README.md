@@ -2,4 +2,6 @@
 
 - tsukasa tsukoyomi 
 
-- ranko kanzaki 
+- ranko kanzaki
+
+- kaguya shinomiya
